@@ -1,1 +1,1 @@
-# Course-Project-MBA631A-Marketing-Management
+# Marketing-Management
